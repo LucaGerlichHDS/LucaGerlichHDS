@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Luca Gerlich
+- 👋 Hi, I’m Luca
